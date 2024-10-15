@@ -1,1 +1,1 @@
-https://injuul.github.io/ivernj/
+https://injuul.github.io
